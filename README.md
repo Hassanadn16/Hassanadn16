@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Hassanadn16
 - 👀 I’m interested in Project Management
-- 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...
+- 🌱 I’m currently learning Leadership skills
+- 💞️ I’m looking to collaborate with any ambtiouse team
 - 📫 How to reach me my twitter  account :hasn_adn16
 
 <!---
